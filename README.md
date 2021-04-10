@@ -1,2 +1,2 @@
-# Dulyaaa.github.io - url
+# Dulyaaa.github.io 
 Personal Portfolio🚀
